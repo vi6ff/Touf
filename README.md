@@ -1,18 +1,5 @@
-# roblox Blox Fruits Codes
-```  
-SECRET_ADMIN
+# minecraft 1.20.0 server 12:00 
+•IP ไอพี
 ```
-``` 
-KITT_RESET
-```
-``` 
-ADMIN_TROLL
-```
-```  
-Sub2CaptainMaui
-```
-``` 
-kittgaming
-```
-```
+vip5551.aternos.me:13735
 ```
